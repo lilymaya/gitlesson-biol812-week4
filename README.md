@@ -5,3 +5,6 @@ Learning github in class
 Maybe this is where we'd say how to install our software
 
 Maybe add a disclaimer that its a work in progress, etc.
+
+
+Lilithhhhhhhh.... love you hehe - Han xo
